@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @FakelMaxim 
+- 👀 I’m interested in study delevelop web-sites
+- 🌱 I’m currently learning school
+- 💞️ I’m looking to collaborate on company
+- 📫 How to reach me in mail fakhelmaxim@gmail.com or telephone +380951282261 +380932841703
